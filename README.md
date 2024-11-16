@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @joscha-wvt
-- I recently became a parent
+- 👨‍👧 I recently became a parent
 - 👀 I’m interested in reading italian and german
 - 🌱 I’m currently learning everyday
 
